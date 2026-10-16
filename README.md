@@ -1,0 +1,2 @@
+# premium-timber-square-001-timber-square-rule-layout-cr
+Tired of losing your timber square calculations and layout sketches across sticky notes, spreadsheets, and forgotten emails? The Timber Square Rule &amp; Layout Craft Studio brings every measurement, angle, and cut plan into one pristine Notion workspace—so you can build with confidence, not chaos.  This template transforms your Notion into a dedicated
